@@ -1,5 +1,5 @@
 
-[UKR](index.md) | **ENG** | [RUS](rus.md)  
+[UKR](index.md) | **ENG** | 
   
 "**Mykolaiv First" (**"[Миколаїв понад усе](https://t.me/PonaduseMkUa)"**)** is a local group of volunteers from Mykolaiv. We help people who remain in the Mykolaiv region to survive the hardships of war. We also provide much needed equipment to the defenders of the city.  
   
