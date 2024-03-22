@@ -11,7 +11,7 @@
 • Приват: 5363 5420 9315 6314  
 • PayPal: pangik@proton.me  
 • WISE: pangik@proton.me  
-• Банковские счета: [USD](https://www.dropbox.com/s/3vgpbui9umccxa1/USD.pdf?dl=0) | [EUR](https://www.dropbox.com/s/yirh63tx20ujxts/EUR.pdf?dl=0) | [UAH](https://www.dropbox.com/s/do9pnlljdugebgi/UAH.pdf?dl=0)  
+• Банковские счета: [USD](pdf/USD.pdf) | [EUR](pdf/EUR.pdf) | [UAH](pdf/UAH.pdf)  
   
 Криптокошельки:  
 • Bitcoin: 1LTK2JX71kSgp6tHu6EvETKqTTmmAyRDev  
