@@ -32,8 +32,10 @@ You can use these payment details to support us:
 At the moment we raise funds for several different purposes.
 
 -   Food and essential goods for refugees and locals - [https://send.monobank.ua/jar/29Z7ZfHdMe](https://send.monobank.ua/jar/29Z7ZfHdMe)
--   Warehouse and fuel costs (to store and distribute humanitarian aid) - [https://send.monobank.ua/jar/4qggc3HihU](https://send.monobank.ua/jar/4qggc3HihU)
+-   Warehouse rental to store and distribute humanitarian aid - [https://send.monobank.ua/jar/4qggc3HihU](https://send.monobank.ua/jar/4qggc3HihU)
 -   Joint fundraiser to fulfill various urgent requests for Ukrainian military - [https://send.monobank.ua/jar/rnLJ4edAw](https://send.monobank.ua/jar/rnLJ4edAw)
+-   Materials to make camouflage nets - [https://send.monobank.ua/jar/4uqZoMUH2g](https://send.monobank.ua/jar/4uqZoMUH2g)
+-   Fuel and other logistics - [https://send.monobank.ua/jar/2h1pHxeRVW](https://send.monobank.ua/jar/2h1pHxeRVW)
 
 If you want to know more about our work, visit [our Telegram channel](https://t.me/PonaduseMkUa).  
 Thank you for your help and support. Your donations can (and will) save lives. Literally.
