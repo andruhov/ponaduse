@@ -25,8 +25,10 @@
   
 На що ми збираємо зараз:
 
--   Загальний військовий збір, з якого ми беремо гроші на виконання термінових запитів від військових - [https://send.monobank.ua/jar/rnLJ4edAw](https://send.monobank.ua/jar/rnLJ4edAw)
+-   Військовий збір, з якого ми беремо гроші на виконання термінових запитів від військових - [https://send.monobank.ua/jar/rnLJ4edAw](https://send.monobank.ua/jar/rnLJ4edAw)
+-   Збір на матеріали для виготовлення маскувальних сіток, які плетуть наші волонтерки - [https://send.monobank.ua/jar/4uqZoMUH2g](https://send.monobank.ua/jar/4uqZoMUH2g)
 -   Оренда складу для гуманітарки - [https://send.monobank.ua/jar/4qggc3HihU](https://send.monobank.ua/jar/4qggc3HihU)
+-   Пальне для волонтерських автівок та інша логістика - [https://send.monobank.ua/jar/2h1pHxeRVW](https://send.monobank.ua/jar/2h1pHxeRVW)
 -   Збір на допомогу цивільним - [https://send.monobank.ua/jar/29Z7ZfHdMe](https://send.monobank.ua/jar/29Z7ZfHdMe)
 
 Звіти по зборах та закупівлях ми викладаємо на наших сторінках в соцмережах. Підпишуться на них, щоб не пропустити щось важливе!  
