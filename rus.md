@@ -28,7 +28,9 @@
 На что мы сейчас собираем:
 
 -   Общий военный сбор, из которого мы берём деньги на выполнение небольших, но срочных запросов для армии - [https://send.monobank.ua/jar/rnLJ4edAw](https://send.monobank.ua/jar/rnLJ4edAw)
--   Аренда склада и топливо для развоза гуманитарки - [https://send.monobank.ua/jar/4qggc3HihU](https://send.monobank.ua/jar/4qggc3HihU)
+-   Сбор на маскировочные сети - [https://send.monobank.ua/jar/4uqZoMUH2g](https://send.monobank.ua/jar/4uqZoMUH2g)
+-   Топливо для волонтёрских машин и прочая логистика - [https://send.monobank.ua/jar/2h1pHxeRVW](https://send.monobank.ua/jar/2h1pHxeRVW)
+-   Аренда склада для гуманитарки - [https://send.monobank.ua/jar/4qggc3HihU](https://send.monobank.ua/jar/4qggc3HihU)
 -   На продукты и предметы первой необходимости николаевцам и переселенцам - [https://send.monobank.ua/jar/29Z7ZfHdMe](https://send.monobank.ua/jar/29Z7ZfHdMe)
 
 Отчёты о сборах и закупках мы выкладываем на наших страницах в соцсетях, подпишитесь на них, чтобы не пропустить что-то важное!  
