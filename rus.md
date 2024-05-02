@@ -36,9 +36,9 @@
 Отчёты о сборах и закупках мы выкладываем на наших страницах в соцсетях, подпишитесь на них, чтобы не пропустить что-то важное!  
   
 • Телеграм - [https://t.me/PonaduseMkUa](https://t.me/PonaduseMkUa)  
-• Твіттер - [https://twitter.com/ponadusemkua](https://twitter.com/ponadusemkua)  
+• Твиттер - [https://twitter.com/ponadusemkua](https://twitter.com/ponadusemkua)  
 • Фейсбук - [https://www.facebook.com/PonaduseMkUa](https://www.facebook.com/PonaduseMkUa)  
-• Тікток - [http://tiktok.com/@ponadusemkua](http://tiktok.com/@ponadusemkua)  
-• Інстаграм - [https://www.instagram.com/ponadusemkua](https://www.instagram.com/ponadusemkua)  
+• Тикток - [http://tiktok.com/@ponadusemkua](http://tiktok.com/@ponadusemkua)  
+• Инстаграм - [https://www.instagram.com/ponadusemkua](https://www.instagram.com/ponadusemkua)  
   
 Спасибо всем, кто помогает и поддерживает. Ваши пожертвования могут буквально спасти кому-то жизнь.
