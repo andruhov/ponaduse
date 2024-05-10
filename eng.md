@@ -1,7 +1,7 @@
 
 [UKR](index.md) | **ENG** | 
   
-"**Mykolaiv First" (**"[Миколаїв понад усе](https://t.me/PonaduseMkUa)"**)** is a local group of volunteers from Mykolaiv. We help people who remain in the Mykolaiv region to survive the hardships of war. We also provide much needed equipment to the defenders of the city.  
+"**Mykolaiv First" (**"[Миколаїв понад усе](https://t.me/PonaduseMkUa)"**)** is a local group of volunteers from Mykolaiv, Ukraine. We help people who remain in the Mykolaiv region to survive the hardships of war. We also provide much needed equipment to the defenders of the city.  
   
 As you may have heard, Mykolaiv is located near the southern frontline of the Russian-Ukrainian war. For almost a year our city has been shelled daily with artillery and missiles, including banned cluster munitions. Thanks to the heroic efforts of the Ukrainian army the Russian occupiers were driven back beyond the Dnipro River, so peace is finally beginning to return to our city. But we are not safe yet. Both civilians and Ukrainian soldiers still need your support.  
   
