@@ -17,7 +17,7 @@ You can use these payment details to support us:
 • Bank accounts: [USD](pdf/USD.pdf) | [EUR](pdf/EUR.pdf) | [UAH](pdf/UAH.pdf)  
   
 **Crypto**:  
-• Bitcoin: bc1q4wr2h4a004k9ecx78e52gcmt4ay0ru3754apct
+• Bitcoin: bc1q4wr2h4a004k9ecx78e52gcmt4ay0ru3754apct  
 • Ethereum (ERC-20 tokens): 0x944cb6f880e6ba6311469287d187ed6130796a25  
 • TRON (TRC-20 tokens): TZ1sXaZf3cW9epXpGPSc2J7Q277qodp3qU  
 • Solana: CjMwthqp4d7pMKRCzLon7t3bem3xx1UHF8D3KV9C5TFS  
