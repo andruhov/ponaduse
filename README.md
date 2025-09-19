@@ -3,4 +3,4 @@
 
 Українська версія - https://ponaduse.mk.ua
 
-Англійська версія - https://ponaduse.mk.ua/eng.html
+English version - https://ponaduse.mk.ua/eng.html
