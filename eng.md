@@ -37,7 +37,7 @@ At the moment we raise funds for several different purposes.
 -   Materials to make camouflage nets - [https://send.monobank.ua/jar/4uqZoMUH2g](https://send.monobank.ua/jar/4uqZoMUH2g)
 -   Fuel and other logistics - [https://send.monobank.ua/jar/2h1pHxeRVW](https://send.monobank.ua/jar/2h1pHxeRVW)
 
-If you want to know more about our work, visit our social media (they are mostly in Ukrainian, but the automatic translation should help. 
+If you want to know more about our work, visit our social media (they are mostly in Ukrainian, but the automatic translation should help). 
 
 • Telegram - [https://t.me/PonaduseMkUa](https://t.me/PonaduseMkUa)  
 • X/Twitter - [https://twitter.com/ponadusemkua](https://twitter.com/ponadusemkua)  
