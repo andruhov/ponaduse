@@ -38,5 +38,6 @@
 • Фейсбук - [https://www.facebook.com/PonaduseMkUa](https://www.facebook.com/PonaduseMkUa)  
 • Тікток - [http://tiktok.com/@ponadusemkua](http://tiktok.com/@ponadusemkua)  
 • Інстаграм - [https://www.instagram.com/ponadusemkua](https://www.instagram.com/ponadusemkua)  
+• Мастодон/Федіверс - [https://mastodon.social/@ponadusemkua](https://mastodon.social/@ponadusemkua)  
   
 Дякуємо всім, хто допомагає та підтримує. Ваші пожертви можуть буквально врятувати комусь життя.
