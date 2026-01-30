@@ -37,5 +37,13 @@ At the moment we raise funds for several different purposes.
 -   Materials to make camouflage nets - [https://send.monobank.ua/jar/4uqZoMUH2g](https://send.monobank.ua/jar/4uqZoMUH2g)
 -   Fuel and other logistics - [https://send.monobank.ua/jar/2h1pHxeRVW](https://send.monobank.ua/jar/2h1pHxeRVW)
 
-If you want to know more about our work, visit [our Telegram channel](https://t.me/PonaduseMkUa).  
+If you want to know more about our work, visit our social media (they are mostly in Ukrainian, but the automatic translation should help. 
+
+• Telegram - [https://t.me/PonaduseMkUa](https://t.me/PonaduseMkUa)  
+• X/Twitter - [https://twitter.com/ponadusemkua](https://twitter.com/ponadusemkua)  
+• Facebook - [https://www.facebook.com/PonaduseMkUa](https://www.facebook.com/PonaduseMkUa)  
+• Tiktok - [http://tiktok.com/@ponadusemkua](http://tiktok.com/@ponadusemkua)  
+• Instagram - [https://www.instagram.com/ponadusemkua](https://www.instagram.com/ponadusemkua)  
+• Mastodon/Fediverse - [https://mastodon.social/@ponadusemkua](https://mastodon.social/@ponadusemkua)  
+
 Thank you for your help and support. Your donations can (and will) save lives. Literally.
